@@ -1,4 +1,4 @@
-infernal caper & 140kg bench press
+infernal caper & 145kg bench press
 
 <!---
 dr-turhard/dr-turhard is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
